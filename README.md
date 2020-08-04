@@ -1,1 +1,7 @@
-# RosanaRZanim
+
+# Rosana Ruiz Zanim 🎯
+## HI! 😊
+
+
+
+
